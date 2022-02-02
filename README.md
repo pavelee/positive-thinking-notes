@@ -4,7 +4,7 @@
 
 * "Do wolności od negatywności, czyli jak oczyszczać swoje myśli, emocje i energię" - Agnieszka Ornatowska
 
-## Dlaczego mamy negatywne myśli?
+## 00-02
 
 -   Każdy z nas posiada skłonności
     -   rozmyślania o negatywnych zdarzeniach z przeszłości
@@ -98,8 +98,14 @@
 -   możemy bawić się swoimi myślami bo nikt tam nie ma wstępu
     -   możemy to wykorzystać aby utrzymać pozytywne myślenie
 
--   
-## Techniki stymulacji pozytywnego nastawienia
+-   musimy się nauczyć się zmieniać swoje myśli
+    -   Naszą jedyną wolnością jest tym o czym myślimy
+        -   Decydujemy na czym się skupimy
+
+-   Nasz umysł bardziej zwraca uwagę na negatywne rzeczy dokoła nas, tak abyśmy przetrwali
+
+-   Chcemy polubić nasz wewnętrzny świat to nie będziemy uciekać do marnotractwa czasu
+# Techniki stymulacji pozytywnego nastawienia
 
 -   Śmiech
 -   Ćwiczenia fizyczne
@@ -107,3 +113,7 @@
 -   Medytacja
     -   Chcemy rozluźniać ciało
     -   strach, stres nas spina
+
+# 01-01
+
+
