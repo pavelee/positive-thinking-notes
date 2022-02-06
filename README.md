@@ -116,4 +116,123 @@
 
 # 01-01
 
+-   Najlepiej testować techniki na sobie, tak aby wyselekcjonować skuteczne dla CIEBIE techniki.
 
+## Podstawa!
+
+-   Istotane aby nasze ciało było:
+    -   wyspane
+    -   zregenerowane
+    -   zrealksowane
+    -   nawodnione
+    -   odżywione
+
+## pozycja ciała
+
+-   pozycja ciała jest wyznacznikiem Twojego nastroju
+    -   mówimy "Głowa do góry", to naturalna technika podniesienia nas na duchu
+-   Technika pozytywnej postawy
+    -   Wyprostuj się
+    -   głowa do góry
+    -   odchyl ramiona do tyłu
+    -   oddech pełną piersią
+-   Przy odpowiedniej pozytywnej postawie nasz mózg automatycznie poprawi nasz nastrój
+
+## ćwiczenia fizyczne
+
+-   Ćwiczenia fizyczny poprawiają nasz nastrój
+    -   Pajacyki
+
+-   W momencie przeżywania silnych emocji nasza prawa pókula mózgu jest aktywna, lewa pozostaje w uśpieniu
+    -   uaktywnienie lewej półkuli jest sposobem na uspokojoienie
+        -   rucuhy naprzemienne
+        -   ruchy gałek od prawej do lewej
+        -   ruchy gałek w kierunku wskazówke zegara
+        -   przeżucanie czegoś z ręki do ręki
+        -   pajacyk, potańczyć
+            -   istotne jest poruszenie obu częście ciała
+
+## uśmiech
+
+-   Uśmiech automatycznie poprawia nasz nastrój i pozytywnie nastawia
+    -   W momencie uśmiechu nasz mózg automatycznie reaguje poztytywnie
+        -    możemy w ten sposób na żądanie poprawić nasz nastrój
+    -   Utrzymanie dłuższego uśmiechu (ekstramalne)
+    -   Podczas uśmiechu nasz mózg wytwarza chemie o podobnym działaniu do narkotyków
+        -   czujesz się radośnie
+
+## nie skupiaj się na negatywnch myślach, pozwól im wygasnąć (emocjach)
+
+-   Nie mamy kontroli nad tym żę pojawiają się emocje
+    -   Natomiast możemy nie skupiwać się na przychodzących do nas emocji
+        -   w naturalny sposób wygaszają się
+        -   W momencie jak poczujemy np. gniew
+            -   Nazwijmy w myślach uczucie "czuje gniew"
+                -   Zamiast skupiać się na tym
+                    -   Weź głęboki wdech i poczekaj aż wygaśnie
+
+## zmiana struktury obrazu myśli
+
+-   Nasze myśli składają się z obrazu, dźwięku oraz odczuć (3d)
+-   Możemy natomiast manipulować obraz myśli
+    -   Położenie w przestrzeni
+    -   kształt
+    -   wielkość
+    -   jakość (wyrazistość, kolory, głębie)
+-   Można to zaobrazować w eksperymencie
+    -   Pomyśl o czymś co nazywasz "problemem"
+        -   Oddal myśl w przestrzeni
+        -   Zmniejsz do rozmiaru znaczka pocztowego
+        -   Zmień kolor na czarno-biały
+        -   Zatrzymaj ruch (jeśli jest)
+    -   Sprawdź jak teraz odczuwasz dany "problem"
+        -   Powinny być odczuwalna ulga
+-   Automatycznie jak zmieniamy coś w obrazie myśli, zmieniają się nasze odczucia
+-   Kolejny Eksperyment do przetestowania
+    -   Pomyśl o czymś negatywnym, następnie wyobraź sobie że obraz danej myśli zgniatasz w kulkę
+    -   Następnie wyobraź sobie że wyprostowujesz zgnieciną kartkę i patrzysz na pognieciony obraz myśli, co odczuwasz?
+        -   Powinna być odczuwalna ulga
+    -   Możesz eksperymentować z różnymi sposobami niszczenia takich myśli w głowie (proca, miotacz ognia itp.)
+-   Finalnie celem jest zmiana obrazu negatywnej myśli, co za tym idzie lepsze i pozytywne nastawienie
+    -   Jeśli bawisz się w ten sposób myślami to Twój umysł uczy się że to jest przyjemne, co za tym idzie staję sie to nawykiem
+## zmiana położenia myśli w przestrzeni
+
+-   Poprzez zmianę położenia myśli w przestrzeni możemy zmieniać w jaki sposób chce się czuć w przpypadku konkretnej myśli
+    -   Chcemy nabrać dystansu do negatywnych myśli
+-   Najpierw pomyśleć o rzeczach które są zupełnie dla nas obojętne np. jaka jest teraz cena masła w holandii
+    -   Sprawdź gdzie takie myśli znajdują się w Twoim umyśle i jak wygląda obraz tej myśli. Zapamiętaj to.
+    -   Teraz gdy już wiesz gdzie są takie myśli, przenieś tam wszystkie negatywne myśli co do których chcesz nabrać dystansu. Pamiętaj aby też dostosować obraz do takiego samego!
+    -   Powinna być odczuwalna ulga
+
+## "Kiedyś będziesz się z tego śmiał", nie czekaj zrób to teraz!
+
+-   Znajdz w przestrzeni swojego umysłu miejsce gdzie znajdują się i jak wyglądają myśli z których lubisz się smiać (dowcip, zabawna sytuacja)
+    -   Następnie przesuń i dostosuj obraz negatywnej myśli!
+    -   Powinna być odczuwalna ulga, nawet śmiech!
+
+## zmiana wielkości obrazu negatywnej myśli
+
+-   Negatywne myśli mogą być ogromnę i nas przytłaczać. Nie jesteśmy wstanie o nich nie myśleć!
+-   Oddal ten obraz, zmniejsz go i postaraj się aby przestał zasłaniać Ci przestrzeń Twoich myśli
+    -   Następnie pomyśl sobie co potrzebuje zrobić (podjąć działanie) aby poradzić sobie z tym problemem
+    -   Wybierz 4 zasoby które wydają się najważniejsze np. spokój, dystans, opanowanie, optymizm, pewność siebie
+    -   Przypomnij sobie moment w którym odczuwałeś/aś spokój np. siedzisz na plaży a całą Twoja uwaga skupia się na rytmie fal
+
+## zmień swoją wizje przyszłości na bardziej optymistyczną
+-   Lęk przed nadchodzącymi wydarzeniami generuję nam czarne scenariusze w głowie
+-   Zamiast zakładać najgorsze, założ optymistyniejszy scenariusz
+-   Skup się na rzeczach które dla Ciebie mają znaczenie
+    -   Posprzątaj pokój
+    -   Odpocząć, poczytać
+    -   Uczyć się, wysiłek umysłowy 
+    -   medytuj
+-   Celem jest być "tu i teraz", nie wychodzić zbytnio w przód myślami
+    -   Nie rozmyślanie o przeszłości ani przyszłości
+    -   Powinno to ulżyć, pomóc znaleść spokój ducha 
+
+
+## dobieraj odpowiednie słowa opisując problem
+-   Używanie słów które wyolbrzymiają problem, powodują że nasze myśli rosną i stają się paraliżujące
+    -   Gdy stwierdzamy żę "to jest olbrzymi problem" to powiększamy obraz w naszej głowie
+-   Opiszmy problem krótko i zwięźle
+    -   Skupmy się na działaniu
