@@ -2,7 +2,7 @@
 
 ## Źródło
 
-* "Do wolności od negatywności, czyli jak oczyszczać swoje myśli, emocje i energię" - Agnieszka Ornatowska
+-   "Do wolności od negatywności, czyli jak oczyszczać swoje myśli, emocje i energię" - Agnieszka Ornatowska
 
 ## 00-02
 
@@ -19,7 +19,7 @@
     -   Nie pozwalają nam normalnie funkcjonować
         -   negatywne myśli nawracją
             -   Nie pozwalają nam skupić się na istotnych dla nas sprawach
-    -   umysł skupione na negatywizmie popada w dalszą negatywną wizualizacje 
+    -   umysł skupione na negatywizmie popada w dalszą negatywną wizualizacje
 -   Nasze umysły są nastawione na wyłapywanie zagrożeń z otoczenia
     -   Uwage skupiają negatywne zdarzenia (przetrwanie)
     -   Negatywne myśli kumulują się
@@ -45,32 +45,42 @@
 -   Akceptuj negatywne myśli, traktuj jako ostrzeżenie
     -   Zastanów się co sugerują i podejmij działanie
     -   Następnie skup się na pozytywnych myślach
+
 # 1
+
 -   Na całym świecie w podobny sposób reagujemy na nasze emocje
     -   wyjątkiem jest pogarda (kulturowo)
     -   tylko radość jest pozytywna
         -   uśmiech stymuluje radość (emocja pozytywna)
+
 # 2
+
 -   "Jeśli potrawisz się z czegoś śmiać to umiesz sobie z tym poradzić"
+
 # 3
+
 -   Twój stan emocjonalny jest wyczuwany przez inne osoby
     -   Zanim zaczniesz spotkanie spróbuj wprowadzić się w dobry nastrój, to pomaga złapać lepszy kontakt
 -   Lider zespołu wpływa na ich zachowanie
     -   Jeśli jest negatywny, ludzie niechętnie współpracują ze sobą
     -   Jeśli jest pozytywny, chętnie ze sobą się komunikują
+
 # 4
+
 -   jak można zarządzać swoim umysłem?
+
     -   różne techniki
         -   działa indywidualnie
         -   mamy wiele współnego jako ludzie, wiec techniki są wspólne
         -   mamy wspólną strukturę myśli
 
 -   każda myśl składa się z
+
     -   obrazu
     -   dźwięku
-    -   odczucia smaku czy zapachu 
+    -   odczucia smaku czy zapachu
 
-- Nasz umysł w ten sposób odtwarza dane odczucia jak o czymś myślimy
+-   Nasz umysł w ten sposób odtwarza dane odczucia jak o czymś myślimy
 -   To o czym pomyślisz zmienia twoje emocje
     -   pozytywna myśl -> pozytywna emocja
     -   negatywna myśl -> negatywna emocja
@@ -81,30 +91,35 @@
 -   negatywne myślenie utrudnia radzenie sobie
 
 -   eksperyment, pomyśl o czymś
+
     -   pozytywnym
     -   negatywnym
     -   sprawdź swoje reakcje: emocje, ciało
 
-
 -   poddawanie się negatywizmowi przychodzi nam łatwiej
 
 -   nasz umysł stymuluje nam myśli w przestrzeni 3d
+
     -   dodatkowe doznania słuchu
 
 -   zmiana struktury myślenia pomaga nam kontrolować swój umysł
-    -   każdy z nas patrzy na świat poprzez okulary, inaczej pojmujemy 
+
+    -   każdy z nas patrzy na świat poprzez okulary, inaczej pojmujemy
     -   nigdy to nie jest rzeczywistość, skrzywiamy to
 
 -   możemy bawić się swoimi myślami bo nikt tam nie ma wstępu
+
     -   możemy to wykorzystać aby utrzymać pozytywne myślenie
 
 -   musimy się nauczyć się zmieniać swoje myśli
+
     -   Naszą jedyną wolnością jest tym o czym myślimy
         -   Decydujemy na czym się skupimy
 
 -   Nasz umysł bardziej zwraca uwagę na negatywne rzeczy dokoła nas, tak abyśmy przetrwali
 
 -   Chcemy polubić nasz wewnętrzny świat to nie będziemy uciekać do marnotractwa czasu
+
 # Techniki stymulacji pozytywnego nastawienia
 
 -   Śmiech
@@ -141,6 +156,7 @@
 ## ćwiczenia fizyczne
 
 -   Ćwiczenia fizyczny poprawiają nasz nastrój
+
     -   Pajacyki
 
 -   W momencie przeżywania silnych emocji nasza prawa pókula mózgu jest aktywna, lewa pozostaje w uśpieniu
@@ -156,7 +172,7 @@
 
 -   Uśmiech automatycznie poprawia nasz nastrój i pozytywnie nastawia
     -   W momencie uśmiechu nasz mózg automatycznie reaguje poztytywnie
-        -    możemy w ten sposób na żądanie poprawić nasz nastrój
+        -   możemy w ten sposób na żądanie poprawić nasz nastrój
     -   Utrzymanie dłuższego uśmiechu (ekstramalne)
     -   Podczas uśmiechu nasz mózg wytwarza chemie o podobnym działaniu do narkotyków
         -   czujesz się radośnie
@@ -195,6 +211,7 @@
     -   Możesz eksperymentować z różnymi sposobami niszczenia takich myśli w głowie (proca, miotacz ognia itp.)
 -   Finalnie celem jest zmiana obrazu negatywnej myśli, co za tym idzie lepsze i pozytywne nastawienie
     -   Jeśli bawisz się w ten sposób myślami to Twój umysł uczy się że to jest przyjemne, co za tym idzie staję sie to nawykiem
+
 ## zmiana położenia myśli w przestrzeni
 
 -   Poprzez zmianę położenia myśli w przestrzeni możemy zmieniać w jaki sposób chce się czuć w przpypadku konkretnej myśli
@@ -219,20 +236,114 @@
     -   Przypomnij sobie moment w którym odczuwałeś/aś spokój np. siedzisz na plaży a całą Twoja uwaga skupia się na rytmie fal
 
 ## zmień swoją wizje przyszłości na bardziej optymistyczną
+
 -   Lęk przed nadchodzącymi wydarzeniami generuję nam czarne scenariusze w głowie
 -   Zamiast zakładać najgorsze, założ optymistyniejszy scenariusz
 -   Skup się na rzeczach które dla Ciebie mają znaczenie
     -   Posprzątaj pokój
     -   Odpocząć, poczytać
-    -   Uczyć się, wysiłek umysłowy 
+    -   Uczyć się, wysiłek umysłowy
     -   medytuj
 -   Celem jest być "tu i teraz", nie wychodzić zbytnio w przód myślami
     -   Nie rozmyślanie o przeszłości ani przyszłości
-    -   Powinno to ulżyć, pomóc znaleść spokój ducha 
-
+    -   Powinno to ulżyć, pomóc znaleść spokój ducha
 
 ## dobieraj odpowiednie słowa opisując problem
+
 -   Używanie słów które wyolbrzymiają problem, powodują że nasze myśli rosną i stają się paraliżujące
     -   Gdy stwierdzamy żę "to jest olbrzymi problem" to powiększamy obraz w naszej głowie
 -   Opiszmy problem krótko i zwięźle
     -   Skupmy się na działaniu
+
+# 01-02 - Dźwięki - Słowa
+
+-   Każdy z nas prowadzi wewnętrzny dialog
+-   Każde słowo na Ciebie wpływa
+
+    -   nie ma znaczenia czy mowisz głośno czy w myślach
+    -   Też słowa innych osób
+        -   Ktoś nam opowiada o jakimś problemie
+        -   Słuchamy wiadomości, negatywnych informacji
+        -   słowa wypowiadane przez osoby w autobusie itp.
+    -   Nasz umysł dla każdego słowa aby je zrozumieć wyciąga doświadczenie
+        -   z każdym doświadczeniem wiąże się jakaś emocja i uczucie
+
+-   Wybieranie filmu nacechowanego negatywnie też wypływa na nasze emocje
+
+    -   mimo że wiemy że to fikcja, odczuwamy negatywne emocje
+    -   dlatego lubimy takie filmy, jest to bardziej pociągające
+
+-   Hałas negatywnie na nas wpływa
+
+    -   generuje stres, jest w pierwszej piątce stresorów
+
+-   Kiedy mówimy do siebie w myślach jesteśmy dla siebie znacznie ostrzejsi
+
+    -   Na przykład kiedy chcemy być mili dla kogos ale w środku gotujemy się (negatywne myśli)
+        -   Finalnie takie myśli wpływają na nas samych, sami sobie robimy krzywde
+    -   "Złoszczenie się na innych jest jak picie samemu trucizny z nadzieją że ktoś inny od niej umrze"
+    -   Nic nam to nie daje oprócz zlego samopoczucia
+
+-   W przypadku kiedy zdarzy nam się powiedzieć coś negatywnego (każdemu się zdarza)
+    -   dodajmy słowo "ale" i następnie jakiś komplement, coś pozytywnego aby zrównoważyć wypowiedziane negatywne słowa
+    -   Jak Ci się zdarzy powiedzieć sobie w myślach "Jak jeździsz baranie"
+        -   Dodaj
+            -   ale samochód masz ładny
+            -   ale matka ziemia nasz kocha
+
+- Od dziecka jesteśmy programowani na wytykanie błędów i krytykowanie
+    -   Nauczyciele w szkole zaznaczają nam tylko błędy na sprawdzianie
+    -   Nawet mając dobre intencje to wytykamy błędy..
+    -   Najlepiej użyć kanapki feedbackowej (pochwałą, krytyka, pochwała ogólna)
+        -   Najpierw coś pozytywnego "fajnie to zrobiłeś"
+        -   Następnie krytyka "natomiast warto poprawić to i to"
+        -   Ogólny komplement "fajnie sobie radzisz"
+    -   Nasz rozmówca nie raguje pozycja obronna bo usyłszam poztywyny feedback wymieszany z negatynymi
+        -   Zamiast powiedzieć "Zupa jest źle przyprawiona"
+            -   Powiedzieć "Miło mi że swój czas aby coś dla mnie ugotować, następnym razem użyj oszczędniej przyprawy, jesteś kochany/kochana że tak o mnie dbasz"
+    
+    -   Krytyujemy sami siebie
+        -   Najpierw w myślach obmyślamy perfekcyjny plan
+        -   Następnie zderzamy się z rzeczywistością i rozczarowaniem
+        -   To prowadzi do wewnętrznej krytyki samego siebie
+        -   Nie ma to sensu i zabiera nam radość z pracy i osiągnięć
+        -   Lepiej użyć kanapki feedbackowej dla siebie samego
+
+
+-   Ludzie maja tendencje do używania negatywnych słów
+    -   strasznie, okropnie
+        -   "strasznie mi się to podoba"
+    -   lepiej używać pozytywnych słów z negacją
+        -   Każde negatywne słowo można zastąpić pozytywnych ze słowem nie na początku
+            -   brzydkie -> nie ładne
+            -   złe -> nie dobre
+            -   chore -> nie zdrowe
+            -   zestresowane -> nie spokojne
+        -   to pozwala nam pozytywne nastawienie
+    -   prosta technika, wymaga tylko uważności
+
+-   W momencie jak prowadzimy wewnętrzny dialog nasz język wykonuje mikroruchy których nasz umysł nie jest świadomy
+    -   aby to powstrzymac mozemy unieruchomić język
+        -   rozluźnij język tak aby opadł na zęby dolnej szczęki
+        -   napięcie języka naciskając na jedynki od tyłu
+    -   Dobra technika kiedy nie możemy poradzić sobie z wewnętrznymi negatywnymi myślami
+    -   Pomaga też w zasypianiu
+
+-   Nasz wewnętrzny dialog często przybiera formę dialogu dobrej i złej osoby
+    -   dobra osoba jest optymistyczna i nas motywuje
+    -   zła osoba nas krytykuje i wprowadza w depresje
+    -   Jeśli się poddamy temu dialogowi i złej osobie to nas to sparaliżuje
+    -   Tutaj warto zlokalizować skad pochodzi negatywny dialog i po prostu go przesunąć, zmodyfikować. Co kolwiek co spowoduje że przestaniemy to brać na poważnie.
+
+-   Nasz umysł nie lubi próżni
+    -   Jeśli zostawimy go samego sobie to dialog powróci
+    -   Warto się skupić się na czymś pozytywnym
+
+-   Dialog wewnętrzny warto modulować jako przyjemny i wspierający głos
+
+-   Warto pamiętać że przestrzeń naszego umysłu jest w pełni pod naszą kontrolą
+    -   To my decydujemy co tam się znajduje
+        -   Jakie myśli i dialogi
+            -   Skupienie się na pozytywnych myślach   
+
+# 01-03
