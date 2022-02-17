@@ -364,3 +364,8 @@
 
 # 02-01
 
+-   Przemodelowanie swojego życia na wzór zwierzat, prostota
+    -   Zwierzeta pojmuja zycie jako aktywnosc, zabawa i mizanie, jedzenie i spanie
+    -   maksymalne skupienie na tym co robimy i nastepnie robimy odpoczynek
+-   Wpadanie w spirale negatywnego myślenia
+    -   Negatywne myśli maja tendencje do przyciągania się jak magnes, nadchodza nastepne
