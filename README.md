@@ -357,3 +357,10 @@
     -   balonik napełniasz powietrzem ze wszystkim co masz negatywne w głowie
         -   następnie zawiązujesz balonik aby to co zostało wdmuchane nie uciekło
         -   puść balonik aby uciekł
+-   wyobraznia zmywania negatywnej emocji
+-   muzyka do reklaksu
+    -   relaksacyjna
+    -   mantry
+
+# 02-01
+
