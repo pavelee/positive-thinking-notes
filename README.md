@@ -347,3 +347,13 @@
             -   Skupienie się na pozytywnych myślach   
 
 # 01-03
+
+-   Własny uciszać negatywnych emocji
+    -   "Głupoty gadasz", "Pieprzyć głupoty"
+    -   bagetalizowanie tych myśli
+-   Szukanie jaka emocja znajduje się po drugiej stronie
+    -   Przesuń negatywna emocje w najbardziej pozytywny wymiar
+-   Puść to co zabiera Ci spokój
+    -   balonik napełniasz powietrzem ze wszystkim co masz negatywne w głowie
+        -   następnie zawiązujesz balonik aby to co zostało wdmuchane nie uciekło
+        -   puść balonik aby uciekł
