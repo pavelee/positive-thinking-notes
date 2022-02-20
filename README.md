@@ -369,3 +369,85 @@
     -   maksymalne skupienie na tym co robimy i nastepnie robimy odpoczynek
 -   Wpadanie w spirale negatywnego myślenia
     -   Negatywne myśli maja tendencje do przyciągania się jak magnes, nadchodza nastepne
+    -   Ludzie roztrzesują swoje myśli w tzw. "ramie problemu"
+        -   zamiast szukać rozwiązania, porgrażają się w negatywnych myślach
+        -   zamykamy się w "ramie problemu", skupiając się na samym problemie, typowe pytania
+            -   Dlaczego tak się dzieje?
+            -   Z czego to wynika?
+            -   Kto jest temu winien?
+            -   Dlaczego mnie to spotyka?
+            -   Dokąd to może prowadzić?
+            -   Co może się przez to zdażyć?
+            -   Co złego jeszcze może się wydażyć?
+        -   Powinniśmy skupiać na "ramie rozwiązania", typowe pytania:
+            -   Czego potrzebuje aby z tym sobie poradzić?
+            -   Kto mi może pomóc?
+            -   Co mogę zrobić, aby sobie z tym poradzić?
+            -   Gdzie mogę szukać rozwiązania?
+            -   Co mnie może ochronić w tych okolicznościach?
+            -   Czego mogę się w tej sytuacji nauczyć?
+            -   Jak się będę czuł jak to już minie?
+        -   Pytania z serii "ramy problemu" potęgują złe samopoczucie i negatywne emocje, ponieważ skupiamy nasze myśli na istocie problemu i jego przyczynach
+        -   Pytania z serii "ramy rozwiązania", poszukiwanie wyjścia z sytuacji, poszukianie rozwiązania, możliwość znalezienia pomocy i ochrony. To nas skupia na pozytywnym myśleniu, co za tym idzie rozwiązaniach.
+-   Rozpamiętywanie negatywnych wspomnień z przeszłości
+    -   Mamy dni kiedy czujemy się znacznie gorzej. Jest to spowodowane skupianiem się na negatywnych rzeczach które nam się przytrawiły
+    -   Skupiamy się na pozytywnych i konstruktywnych myślach, to nasz dzień zawsze będzie dobry.
+    -   Co jakiś czas przywołujmy sobie pozytywne myśli, co kolwiek co nas cieszy, bawi czy sprawia przyjemność np. jakiś sukces, za co jesteśmy wdzięczni
+        -   Można ustawić sobie przypominacz, tak aby pamiętać o cyklicznej projekcji pozytywnej myśli
+-   Emocje mają to do siebie że powstają jako reakcja na konkretną sytuacje, co za tym idzie są związane z jakimś miejscem, czyli kontekstem. 
+    -   Warto nauczyć się rozdzielić kontekst od swoich myśli, co za tym idzie kontrolować swój nastrój
+        -   Zdecyduj kiedy chcesz odczuwać negatywne emocje, np. we wtorek o 18 - 19.
+            -   W każdym innym momencie jak zaczniesz odczuwać negatywne emocje to powiedz sobie "pomyśle o tym we wtorek"
+                -   pewnie się okaże że większość tych problemów już nie ma znacznia
+                -   to daje nam do myślnia jak nie potrzebne jest zamartwianie się
+                -   technika pozwala nam pracować nad opanowaniem emocji
+    -   technika "Scarlet O'hary"
+        -   w momencie doświadczania negatywnych emocji powiedz sobie "pomyśle o tym jutro"
+-   W naszym życiu mamy wiele sytuacji które generują nam negatywne emocje
+    -   musimy umieć rozpoznać czy mamy na to wpływ
+        -   zrób co możesz w temacie i przestań rozmyślać na ten temat
+        -   chcemy unikać rozmyślania na ten temat
+    -   Zastosowanie techniki "przeramowania"
+        -   Ludzie mają tendencje do zapamiętywania zdarzeń w postaci obrazku, dźwięku i odczuć. Co też nas przekonuję że to jest obietywny sposób patrzenia na to co się zdarzyło.
+            -   Różne osoby inaczje zapamiętują taką samą scene, odtwarzamy to inaczej
+        -   Od nas zależy jak coś pojmujemy
+            -   Możemy "przeramować" wspomnienia tak aby były pozytywne, co za tym idzie stymulowały pozytywny nastrój
+            -   Od Ciebie zależy wszystko co jest w Twojej głowie
+                -   Jest to najlepsze ćwiczenie do pracy nad sobą i kontrolą swojego życia
+-   Efekt pollyanny, tak zwany bład poznawczy
+    -   Doszukiwanie się w każdej sytuacji radości, pozytywnych rzeczy
+        -   Dziewczynka dostała kule do chodzenia zamiast lalki
+            -   Doszukała się radości w tym że może chodzić i nie potrzebuje ich używać
+    -   Skupmy się na wyciąganiu tego co dobre i wspaniałe z otaczających nas rzeczy
+        -   możemy cieszyć się życiem zamiast trwać w negatywnościach
+        -   wymaga to praktyki aby o tym pamiętać i szukać zawsze w radości
+-   Podejmujmy działanie a jeśli nie mamy wpływu to zmienmy myślenie
+-   Mamy tendencje do tworzenia negatywynch scenariuszy
+    -   powoduje to lęk, tworzymy w myślach negatywne scenariusze
+    -   przeżywam w trażniejszości wymyślone negatywne scenariusze, co za tym idzie uczymy się takiego nawyku
+        -   jednocześnie nastawiamy się negatywnie i programujemy na porażke
+    -   starajmy się tworzyć pozytywnyne scenariusze
+        -   przydatne jest stworznenie paru scenariuszy, też takich które nie oczukują perfekcyjnego występu, tak abyśym nie tworzyli sobie zbyt wielkich oczekiwań, co za tym idzie rozczarowań
+    -   Prawo przyciągania też sciągaja do nas negatywne zdarzenia w momencie negatywnego myślenia
+
+# 02-02
+
+-   Pytania kwantowe
+    -   Pomagają człowiekowi kreować jego własny świat, ponieważ zawierają sugestie czego oczekujemy
+    -   Jak wstajemy rano warto sobie zadać pytanie
+        -   Jak dobry, piękny, wspaniały dla mnie to będzie dzień?
+        -   Co dzisiaj wspaniałego, cudownego mnie spotka?
+        -   W jaki sposób dzisiaj wszechświat pokaże mi jak bardzo mnie kocha?
+    -   Jeśli bardzo zależy nam na wykreowaniu innego życzenia, warto zadać pytanie
+        -   Jak to się najlepiej spełni?
+        -   Jak dzisiaj wszechświat mi pomoże w spełnieniu mojego marzenia? 
+        -   Czego potrzebuje do materlializacji mojego marzenia już dzisiaj?
+        -   Jak się będę czuł jak to już osiągne?
+        -   Jak to byłoby jakby już się spełniło?
+    -   Pytania powodują że rzeczywistość dopasowuje się do twoich oczekiwań
+    -   Zyskujesz większą uważność na to co Cie otacza
+        -   Widzimy to co nam pokazuje wszechświat, zamiast tylko biernie obserwować
+    -   Zacznij kolejny dzień od pytania
+        -   Jak wiele cudów, wspaniałych rzeczy i przyjemnych sytuacji doświadcze?
+        -   Ile serdecznych osób spotkam?
+-   Magia jest umiejętnościa wpływania na rzeczywistość
