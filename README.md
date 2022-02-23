@@ -451,3 +451,72 @@
         -   Jak wiele cudów, wspaniałych rzeczy i przyjemnych sytuacji doświadcze?
         -   Ile serdecznych osób spotkam?
 -   Magia jest umiejętnościa wpływania na rzeczywistość
+    -   Magią jest każda myśl podparta emocja, uruchamia to prawo przyciągania
+-   Miłość
+    -   Pomyśl o kimś, o czymś co kochasz
+    -   każde słowo wypowiedziane przez nas wywołuje emocje
+        -   powtarzaj słowo "kocham" w myślach
+
+# 03-00
+
+-   Wizualizacja i medytacja
+    -   pomoc w uwoulnieniu sie z negatywności
+    -   jedna medytacja dziennie
+    -   łatwiej nam utrzymać spokój
+    -   wzrost kreatywności
+    -   uważność na to co się dzieje naokoło
+    -   koncentracja i znikaja myśli "przeszkadzace"
+    -   uczymy się przywoływać i utrzymywać myśl
+        -   znajdz obiekt medytacji (np. obraz)
+            -   obiekt nam się podoba i posiada szczegóły
+        -   znajdz spokojne miejsce aby dało się skupić
+        -   obejrzyj obiekt aby zapamiętaj szczegóły
+        -   zamknik oczy i skup się na szczegółach
+        -   powiększ obraz w swojej wyobraźni
+        -   eksperentuj z obrazem jeśli to możliwe
+        -   powinnieneś odczyć spokój
+            -   uczysz się kierowania swoich myśli
+-   emocje są powiązane z żywiołem emocji
+    -   zadaj sobie pytanie "jaka wodą są aktualnie moje emocje?"
+        -   wodospad
+    -   zadaj sobie pytanie "jaką wodą chce aby moje emocje stały się?"
+-   myśli są powiązane z żywiołem powietrza
+    -   jakim powietrzem są moje myśli?
+    -   jakim powietrzem chce aby były moje myśli?
+-   oddech jest powiązany z naszym stanem emocjonalnym
+    -   położ rękę na brzuchu i oddychaj tak aby ręka się podniosłą
+    -   zrównóważ faze oddechu i wydechu
+    -   dążenie do 8 sekund na obie fazy
+-   wyobraż sobie coś co jest spokojne
+    -   miejsce gdzie czujesz się dobrze i spokojnie
+    -   skup się na tym miejscu
+    -   skup się na poczuciu spokoju jaki Cie ogarnia
+-   jaka barwe ma Twój spokój?
+    -   wyobraź sobie kolor który jest powiązany ze spokojem
+    -   wyobraź sobie że oddychasz tym kolorem
+    -   poczujesz się że jesteś tu i teraz
+        -   zatrzymaj się i zawuważ wszystkie elementy wokół Ciebie
+        -   zauważ wszystkie dźwięki
+        -   skup się na swoim oddechy
+        -   skup się na doznaniach w Twoim ciele
+        -   poczuj swoje całe ciało
+        -   skup się na obiekcie czy dźwieku, obserwuj, odsuń wszystkie myśli
+-   wyobrażanie jak oddech przechodzi przez Twoje ciało
+    -   wyobraź sobie że bierzesz wdech poprzez głowe i wypuszczasz popzez pępek
+-   oderwij się od spraw tego świata rzeczywistości
+    -   wyobraź sobie że masz na czubku głowy okno
+    -   wyobraź sobie że możesz wyjśc przez to okno jak najwyżej, aż do chmur
+-   wyobraź sobie jak wyglądasz jak jesteś spokojny/a
+    -   jak wyglądasz?
+    -   jak się czujesz?
+    -   poczuj to tu i teraz
+-   aktywna medytacja
+    -   wybobraź sobie że oczyszca Cie światło z góry
+    -   poczuj ulgę rozwiania wszystkich ciemnych myśli
+    -   praktykować rano, po złym spotkaniu, stresujących sytuacjach
+-   gdy nie panujesz nad emocjami zawsze warto medytować
+-   powtrarzaj słowo "kocham", wzgelędem wszystkich swoich części ciała
+    -   poczuj jak to jest być pełną miłościa
+    -   celem jest czyste poczucie miłości, jest to najwyższy stan jaki możemy osiągnąć
+
+# 04-00
