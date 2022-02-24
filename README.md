@@ -520,3 +520,36 @@
     -   celem jest czyste poczucie miłości, jest to najwyższy stan jaki możemy osiągnąć
 
 # 04-00
+
+-   Zadbaj o swoj mózg i ciało
+    -   śpij przez 8 godzin
+    -   w ciągu dnia drzemka
+    -   medytacja
+    -   odpowiednie pożywienie
+    -   woda
+    -   orzechy, migdały, awokado, słonecznik, dynia
+    -   herbaty zielone
+    -   aktywność fizyczna
+-   poinformuj bliskich że uczysz się nowych umiejętności
+    -   potrzebujesz czasu
+    -   najlepiej wspólnie uczyć się
+-   Wybierz techniki które najlepiej na Ciebie działają
+    -   Wybróbuj każdą
+    -   Sukcesem jest to jak się czujesz i jak szybko pozbywasz się negatywizmowi
+    -   konsekwetnie praktykuj
+    -   pamiętaj o efekcie pollyanny
+        -   szukaj radości
+-   nawyk medytacji
+    -   raz dziennie conajmniej
+        -   2 / 3 razy dziennie jesli chcemy wiecej
+    -   najlepiej zacząć od krótkich
+-   drobne prezenty jak uda Ci się pozostać w dobrym nastroju
+    -   nagódz się za dobre sprawowanie
+-   Wybieraj to co daje Ci przyjemność i radość
+-   W wolnym czasie zajmuj się tym co lubisz
+-   Wybieraj content który jest pozytywny
+    -   Pomaga to utrzymać dobry nastrój
+-   Rzeczy pozytywny też zwykle są spokojne
+    -   szukajmy aktywności w zabawie
+-   Celem jest pozbycie się negatywizmowi, zastąpienie go pozytywnym myśleniem
+-   Techniki działają tylko wtedy kiedy to praktykujemy, musimy działać!
