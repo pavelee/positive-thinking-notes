@@ -46,26 +46,18 @@
     -   Zastanów się co sugerują i podejmij działanie
     -   Następnie skup się na pozytywnych myślach
 
-# 1
-
 -   Na całym świecie w podobny sposób reagujemy na nasze emocje
     -   wyjątkiem jest pogarda (kulturowo)
     -   tylko radość jest pozytywna
         -   uśmiech stymuluje radość (emocja pozytywna)
 
-# 2
-
 -   "Jeśli potrawisz się z czegoś śmiać to umiesz sobie z tym poradzić"
-
-# 3
 
 -   Twój stan emocjonalny jest wyczuwany przez inne osoby
     -   Zanim zaczniesz spotkanie spróbuj wprowadzić się w dobry nastrój, to pomaga złapać lepszy kontakt
 -   Lider zespołu wpływa na ich zachowanie
     -   Jeśli jest negatywny, ludzie niechętnie współpracują ze sobą
     -   Jeśli jest pozytywny, chętnie ze sobą się komunikują
-
-# 4
 
 -   jak można zarządzać swoim umysłem?
 
