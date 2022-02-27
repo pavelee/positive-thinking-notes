@@ -38,4 +38,21 @@
 
 ## Pozytywne nastawienie to kwesta wyboru
 
--   Mamy pełną kontrolę nad swoim umysłem, co za tym idzie - myśleniem i oceną
+-   Mamy pełną kontrolę nad swoim umysłem, co za tym idzie - kontrolwaniem swoich myśli
+-   Wszystko co się dzieje w naszym życiu możemy odbierać negatywnie lub pozytywnie
+    -   negatywnie
+        -   narzekanie, bierność, rezygnacja, agresja, szukanie winnych
+    -   pozytywnie
+        -   nastawienie na działanie i szukanie rozwiązań
+
+## Nasze myśli posiadają strukturę
+
+-   Każda myśl posiada składowe
+    -   obraz
+    -   dźwięk
+    -   odczucia
+-   Nasz umysł przetrzymuje myśli w przestrzeni trójwymiarowej
+    -   Umysł potrawi nam projektować myśli w trybie "rzutnika"
+-   Kiedy o czymś myślimy powyższe składowe wpływają na nasze emocje, co za tym idzie samopoczucie
+-   Co najważniejsze, rozumiejąc strukturę myśli możemy nauczyć się tym manipulwować
+    -   Chcemy utrzymać nasze poztywny nastrój i nastawienie
