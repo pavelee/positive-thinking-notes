@@ -13,6 +13,8 @@
         -   to dlatego negatywne informację są łatwiejsze do zapamiętania
     -   media wykorzystują ten fakt aby nas utrzymać przy odbiornikach
         -   to dlatego w TV przeważające są informacje negatywne
+-   Nie jest możliwe pozbycia negatywnych emocji, to istotna część naszej natury
+    -   To co nas interesuję to szukanie rozwiązania niż tkwienie w negatywnym stanie
 
 ## Skutki trwania w negatywnych emocjach
 
@@ -21,6 +23,7 @@
     -   lęk i stres
     -   ciągłe poczucie zagrożenia
 -   Długtrwałe trwanie w negatywnych emocjach jest porównywalne do powolnego samobójstwa
+    -   chroniczny stres jest chorobą cywilizacyjną i przyczną wielu schorzeń
 
 ## Dlaczego warto walczyć ze swoim negatywizmem?
 
@@ -33,4 +36,6 @@
 -   Pozytywne nastawienie ułatwia nam korzystanie z życia
     -   negatywizm zamyka nas na doświadczanie
 
-## Pozytywne nastawienie to wybór zależny od nas
+## Pozytywne nastawienie to kwesta wyboru
+
+-   Mamy pełną kontrolę nad swoim umysłem, co za tym idzie - myśleniem i oceną
