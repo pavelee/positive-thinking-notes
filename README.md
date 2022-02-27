@@ -56,3 +56,9 @@
 -   Kiedy o czymś myślimy powyższe składowe wpływają na nasze emocje, co za tym idzie samopoczucie
 -   Co najważniejsze, rozumiejąc strukturę myśli możemy nauczyć się tym manipulwować
     -   Chcemy utrzymać nasze poztywny nastrój i nastawienie
+
+## Techniki stymulowania pozytywnego nastawienia
+
+### Odpowiednia postawa ciała
+
+### Ruch!
