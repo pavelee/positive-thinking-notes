@@ -41,9 +41,15 @@
 -   Mamy pełną kontrolę nad swoim umysłem, co za tym idzie - kontrolwaniem swoich myśli
 -   Wszystko co się dzieje w naszym życiu możemy odbierać negatywnie lub pozytywnie
     -   negatywnie
-        -   narzekanie, bierność, rezygnacja, agresja, szukanie winnych
+        -   narzekanie
+        -   bierność
+        -   rezygnacja
+        -   agresja
+        -   szukanie winnych
     -   pozytywnie
-        -   nastawienie na działanie i szukanie rozwiązań
+        -   nastawienie na działanie
+        -   szukanie rozwiązań
+        -   współpraca
 
 ## Nasze myśli posiadają strukturę
 
