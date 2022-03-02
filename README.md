@@ -65,6 +65,65 @@
 
 ## Techniki stymulowania pozytywnego nastawienia
 
+-   Istnieje wiele technik walki z negatywizmem
+    -   Każdy jest indywidualny, musi samodzielnie poszukać co działa najskuteczniej
+    -   najlepiej sprawdzić każdą technikę
+        -   skuteczne praktykować!
+
+### Zadbaj o swoje ciało!
+
 ### Odpowiednia postawa ciała
 
 ### Ruch!
+
+### Kreatywne zajęcie
+
+### Uśmiech
+
+### Unieruchom swój język
+
+### Pozwól wygasić
+
+### "Kiedyś będziesz się z tego śmiał", nie czekaj zrób to teraz!
+
+### zmiana struktury obrazu myśli
+
+### zmiana położenia myśli w przestrzeni
+
+### zmiana wielkości obrazu negatywnej myśli
+
+### zmień swoją wizje przyszłości na bardziej optymistyczną
+
+### dobieraj odpowiednie słowa opisując problem
+
+### sprawdź otaczające Cie środowisko
+
+### Wybieraj pozytywne filmy, muzykę
+
+### krytykuj korzystajać z kanapki feedbackowej
+
+### Neutralizuj negatywne myśli i słowa
+
+### Nie pozostawiaj swojego umysłu samego sobie
+
+### Skorzystaj z wyobraźni
+
+### Szukaj prostoty życia jak u pupila
+
+### Przeramowanie
+
+### Utrzymuj koncentracje na pozytywach
+
+### technika "Scarlet O'hary"
+
+-   pomyśle o tym jutro!
+
+### Czy mam na to wpływ?
+
+-   Podejmujmy działanie a jeśli nie mamy wpływu to zmienmy myślenie
+
+### Technika pollyanny
+
+-   Doszukuj się we wszystkim radości
+
+### Wizualizacja oraz medytacja
