@@ -2,6 +2,11 @@
 
 -   [Źródło](#źródło)
 -   [Negatywizm jest naturalny](#negatywizm-jest-naturalny)
+-   [Eksperyment](#eksperyment)
+-   [Dlaczego warto walczyć ze swoim negatywizmem?](#dlaczego-warto-walczyć-ze-swoim-negatywizmem)
+-   [Pozytywne nastawienie to kwesta wyboru](#pozytywne-nastawienie-to-kwesta-wyboru)
+-   [Techniki stymulowania pozytywnego nastawienia](#techniki-stymulowania-pozytywnego-nastawienia)
+    -   [Zadbaj o swoje ciało!](#zadbaj-o-swoje-ciało)
 
 ## Źródło
 
@@ -106,6 +111,15 @@
     -   zrealksowane
     -   nawodnione
     -   odżywione
+-   Staraj się
+    -   śpij przez 8 godzin
+    -   w ciągu dnia drzemka
+    -   medytacja
+    -   odpowiednie pożywienie
+    -   woda
+    -   orzechy, migdały, awokado, słonecznik, dynia
+    -   herbaty zielone
+    -   aktywność fizyczna
 
 ### Odpowiednia postawa ciała
 
