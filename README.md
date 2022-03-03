@@ -1,5 +1,8 @@
 # Notatki na temat pozytywnego nastawienia
 
+-   [Źródło](#źródło)
+-   [Negatywizm jest naturalny](#negatywizm-jest-naturalny)
+
 ## Źródło
 
 -   "Do wolności od negatywności, czyli jak oczyszczać swoje myśli, emocje i energię" - Agnieszka Ornatowska
