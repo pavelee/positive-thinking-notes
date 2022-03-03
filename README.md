@@ -10,6 +10,28 @@
     -   [Odpowiednia postawa ciała](#odpowiednia-postawa-ciała)
     -   [Ruch!](#ruch)
     -   [Kreatywne zajęcie](#kreatywne-zajęcie)
+    -   [Uśmiech](#uśmiech)
+    -   [Unieruchom swój język](#unieruchom-swój-język)
+    -   [Pozwól negatywnej emocji wygasnąć](#pozwól-negatywnej-emocji-wygasnąć)
+    -   ["Kiedyś będziesz się z tego śmiał", nie czekaj zrób to teraz!](#kiedyś-będziesz-się-z-tego-śmiał-nie-czekaj-zrób-to-teraz)
+    -   [Manipuluj strukturą swoich myśli](#manipuluj-strukturą-swoich-myśli)
+    -   [Kontroluj swój wewnętrzny dialog](#kontroluj-swój-wewnętrzny-dialog)
+    -   [Zmień swoją wizje przyszłości na bardziej optymistyczną](#zmieńswoją-wizje-przyszłości-na-bardziej-optymistyczną)
+    -   [Dobieraj odpowiednie słowa opisując problem](#dobieraj-odpowiednie-słowa-opisując-problem)
+    -   [Sprawdź otaczające Cie środowisko](#sprawdź-otaczające-cie-środowisko)
+    -   [Uważaj co mówisz](#uważaj-co-mówisz)
+    -   [Wybieraj pozytywny content](#wybieraj-pozytywny-content)
+    -   [Kanapka feedbackowa](#kanapka-feedbackowa)
+    -   [Neutralizuj negatywne myśli i słowa](#neutralizuj-negatywne-myśli-i-słowa)
+    -   [Nie pozostawiaj swojego umysłu samego sobie](#nie-pozostawiaj-swojego-umysłu-samego-sobie)
+    -   [Skorzystaj z wyobraźni](#skorzystaj-z-wyobraźni)
+    -   [Szukaj prostoty życia](#szukaj-prostoty-życia)
+    -   [Przeramowanie](#przeramowanie)
+    -   [Utrzymuj koncentracje na pozytywach](#utrzymuj-koncentracje-na-pozytywach)
+    -   [technika "Scarlet O'hary"](#technika-scarlet-ohary)
+    -   [Dychotomia kontroli](#dychotomia-kontroli)
+    -   [Technika pollyanny](#technika-pollyanny)
+    -   [Wizualizacja oraz medytacja](#wizualizacja-oraz-medytacja)
 
 ## Źródło
 
@@ -169,7 +191,7 @@
     -   Dobra technika kiedy nie możemy poradzić sobie z wewnętrznymi negatywnymi myślami
     -   Pomaga też w zasypianiu
 
-### Pozwól negatywnym emocją wygasnąć
+### Pozwól negatywnej emocji wygasnąć
 
 -   Nie mamy kontroli nad tym żę pojawiają się emocje
     -   Natomiast możemy nie skupiwać się na przychodzących do nas emocji
@@ -185,7 +207,7 @@
     -   Następnie przesuń i dostosuj obraz negatywnej myśli!
     -   Powinna być odczuwalna ulga, nawet śmiech!
 
-### manipuluj strukturą swoich myśli
+### Manipuluj strukturą swoich myśli
 
 -   Każda myśl posiada składowe
     -   obraz
@@ -229,7 +251,7 @@
     -   Wybierz 4 zasoby które wydają się najważniejsze np. spokój, dystans, opanowanie, optymizm, pewność siebie
     -   Przypomnij sobie moment w którym odczuwałeś/aś spokój np. siedzisz na plaży a całą Twoja uwaga skupia się na rytmie fal
 
-### kontroluj swój wewnętrzny dialog
+### Kontroluj swój wewnętrzny dialog
 
 -   Nasz wewnętrzny dialog często przybiera formę dialogu dobrej i złej osoby
     -   dobra osoba jest optymistyczna i nas motywuje
@@ -237,7 +259,7 @@
     -   Jeśli się poddamy temu dialogowi i złej osobie to nas to sparaliżuje
     -   Tutaj warto zlokalizować skad pochodzi negatywny dialog i po prostu go przesunąć, zmodyfikować. Co kolwiek co spowoduje że przestaniemy to brać na poważnie.
 
-### zmień swoją wizje przyszłości na bardziej optymistyczną
+### Zmień swoją wizje przyszłości na bardziej optymistyczną
 
 -   Lęk przed nadchodzącymi wydarzeniami generuję nam czarne scenariusze w głowie
 -   Zamiast zakładać najgorsze, założ optymistyniejszy scenariusz
@@ -256,14 +278,14 @@
     -   starajmy się tworzyć pozytywnyne scenariusze
         -   przydatne jest stworznenie paru scenariuszy, też takich które nie oczukują perfekcyjnego występu, tak abyśym nie tworzyli sobie zbyt wielkich oczekiwań, co za tym idzie rozczarowań
 
-### dobieraj odpowiednie słowa opisując problem
+### Dobieraj odpowiednie słowa opisując problem
 
 -   Używanie słów które wyolbrzymiają problem, powodują że nasze myśli rosną i stają się paraliżujące
     -   Gdy stwierdzamy żę "to jest olbrzymi problem" to powiększamy obraz w naszej głowie
 -   Opiszmy problem krótko i zwięźle
     -   Skupmy się na działaniu
 
-### sprawdź otaczające Cie środowisko
+### Sprawdź otaczające Cie środowisko
 
 -   Otaczający ludzie wpływają na Twoje emocje
     -   Jeśli przebywasz w grupie którą cechuje duży negatywizm to też wpłynie na Ciebie
@@ -290,7 +312,7 @@
     -   Nasz umysł dla każdego słowa aby je zrozumieć wyciąga doświadczenie
         -   z każdym doświadczeniem wiąże się jakaś emocja i uczucie
 
-### Wybieraj pozytywne filmy, muzykę
+### Wybieraj pozytywny content
 
 -   Wszystko co słyszymy i widzimy wpływa na nasze emocje
     -   Media są przepełnione negatywnymi wiadomościami
@@ -305,7 +327,7 @@
             -   relaksacyjna
             -   mantry
 
-### krytykuj korzystajać z kanapki feedbackowej
+### Kanapka feedbackowa
 
 -   Od dziecka jesteśmy programowani na wytykanie błędów i krytykowanie
     -   Nauczyciele w szkole zaznaczają nam tylko błędy na sprawdzianie
@@ -357,7 +379,7 @@
     -   puść balonik aby uciekł
     -   poczujesz ulge i lepsze samopoczucie
 
-### Szukaj prostoty życia jak u pupila
+### Szukaj prostoty życia
 
 -   Przemodelowanie swojego życia na wzór zwierzat, prostota
     -   Zwierzeta pojmuja zycie jako aktywnosc, zabawa i mizanie, jedzenie i spanie
@@ -401,7 +423,7 @@
 -   technika "Scarlet O'hary"
     -   w momencie doświadczania negatywnych emocji powiedz sobie "pomyśle o tym jutro"
 
-### Czy mam na to wpływ?
+### Dychotomia kontroli
 
 -   W naszym życiu mamy wiele sytuacji które generują nam negatywne emocje
     -   musimy umieć rozpoznać czy mamy na to wpływ
