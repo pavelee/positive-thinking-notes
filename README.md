@@ -7,6 +7,9 @@
 -   [Pozytywne nastawienie to kwesta wyboru](#pozytywne-nastawienie-to-kwesta-wyboru)
 -   [Techniki stymulowania pozytywnego nastawienia](#techniki-stymulowania-pozytywnego-nastawienia)
     -   [Zadbaj o swoje ciało!](#zadbaj-o-swoje-ciało)
+    -   [Odpowiednia postawa ciała](#odpowiednia-postawa-ciała)
+    -   [Ruch!](#ruch)
+    -   [Kreatywne zajęcie](#kreatywne-zajęcie)
 
 ## Źródło
 
