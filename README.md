@@ -13,13 +13,42 @@
     -   nikt nie rodzi się pozytywnie nastawiony, to wymaga świadomej kontroli swojego umysłu
 -   Nasz umysł przykuwa większą wagę to negatywynch informacji
     -   Nasz mózg traktuje negatywne informacje jako istotne dla naszego przetrwania
-        -   to dlatego negatywne informację są łatwiejsze do zapamiętania
+        -   Nasz umysł lepiej zapamiętuję to co złe i nie przyjemne
+            -   To tłumaczy powszechność negatywizmu
     -   media wykorzystują ten fakt aby nas utrzymać przy odbiornikach
         -   to dlatego w TV przeważające są informacje negatywne
+    -   Nasze umysły są nastawione na wyłapywanie zagrożeń z otoczenia
+        -   Uwage skupiają negatywne zdarzenia (przetrwanie)
+        -   Negatywne myśli kumulują się
+        -   Nasza podświadomość ma za zadanie kierowanie nas w kierunku negatywnych myśli (zagrożeń dla nas)
 -   Nie jest możliwe pozbycia negatywnych emocji, to istotna część naszej natury
     -   To co nas interesuję to szukanie rozwiązania niż tkwienie w negatywnym stanie
+-   Negatywne myśli są powszechną przypadłością
+    -   Nie wiemy jak się oczyścić
+        -   Nikt nas o tym nie uczy
+    -   Nie pozwalają nam normalnie funkcjonować
+        -   negatywne myśli nawracją
+            -   Nie pozwalają nam skupić się na istotnych dla nas sprawach
+    -   umysł skupione na negatywizmie popada w dalszą negatywną wizualizacje
 
-## Skutki trwania w negatywnych emocjach
+## Eksperyment
+
+-   Pomyśl o czymś
+    -   pozytywnym
+    -   negatywnym
+    -   sprawdź swoje reakcje: emocje, ciało
+        -   zauważysz znaczącą różnicę "samopoczucia"
+-   Nasz umysł w ten sposób odtwarza dane odczucia jak o czymś myślimy
+-   To o czym pomyślisz zmienia twoje emocje
+    -   pozytywna myśl -> pozytywna emocja
+    -   negatywna myśl -> negatywna emocja
+    -   wpyływa też na twoje ciało
+        -   np. napięcie mięśni, drżenie rąk
+        -   negatywne myśli wpływa na fizyczny samopoczucie
+-   pozytywne myślenie pomaga nam być kreatywnym i skupić się na działaniu
+-   negatywne myślenie utrudnia radzenie sobie
+
+## Dlaczego warto walczyć ze swoim negatywizmem?
 
 -   Negatywne emocje nas wykańczają psychicznie i fizycznie
     -   potęgują złe samopoczucie
@@ -27,9 +56,6 @@
     -   ciągłe poczucie zagrożenia
 -   Długtrwałe trwanie w negatywnych emocjach jest porównywalne do powolnego samobójstwa
     -   chroniczny stres jest chorobą cywilizacyjną i przyczną wielu schorzeń
-
-## Dlaczego warto walczyć ze swoim negatywizmem?
-
 -   W negatywnym stanie jesteśmy mało użyteczni w spółczesnym świecie
     -   Świat od nas wymaga
         -   kreatywności
@@ -38,6 +64,10 @@
         -   działanie na wysokich obrotach
 -   Pozytywne nastawienie ułatwia nam korzystanie z życia
     -   negatywizm zamyka nas na doświadczanie
+-   Pozytywne myśli przywołują pozytywne emocje, co za tym idzie lepiej się czujemy
+    -   Co za tym idzie przydatna jest umięjętność zarządzania swoimi myślami
+        -   Większość ludzi nie wie jak to zrobić
+            -   nie uczą nas tego w szkole
 
 ## Pozytywne nastawienie to kwesta wyboru
 
@@ -53,29 +83,23 @@
         -   nastawienie na działanie
         -   szukanie rozwiązań
         -   współpraca
-
-## Nasze myśli posiadają strukturę
-
--   Każda myśl posiada składowe
-    -   obraz
-    -   dźwięk
-    -   odczucia
--   Nasz umysł przetrzymuje myśli w przestrzeni trójwymiarowej
-    -   Umysł potrawi nam projektować myśli w trybie "rzutnika"
--   Kiedy o czymś myślimy powyższe składowe wpływają na nasze emocje, co za tym idzie samopoczucie
--   Co najważniejsze, rozumiejąc strukturę myśli możemy nauczyć się tym manipulwować
-    -   Chcemy utrzymać nasze poztywny nastrój i nastawienie
+-   Emocje są zaraźliwe
+    -   Możesz innych zarażać pozytywizmem, co za tym idzie wprowadzać pozytywne zmiany w soim otoczeniu
 
 ## Techniki stymulowania pozytywnego nastawienia
 
--   Istnieje wiele technik walki z negatywizmem
-    -   Każdy jest indywidualny, musi samodzielnie poszukać co działa najskuteczniej
-    -   najlepiej sprawdzić każdą technikę
-        -   skuteczne praktykować!
+-   Wybierz techniki które najlepiej na Ciebie działają
+    -   Wybróbuj każdą
+    -   Sukcesem jest to jak się czujesz i jak szybko pozbywasz się negatywizmowi
+    -   konsekwetnie praktykuj
+-   drobne prezenty jak uda Ci się pozostać w dobrym nastroju
+    -   nagódz się za dobre sprawowanie
+-   Celem jest pozbycie się negatywizmowi, zastąpienie go pozytywnym myśleniem
+-   Techniki działają tylko wtedy kiedy to praktykujemy, musimy działać!
 
 ### Zadbaj o swoje ciało!
 
--   Fundamentalne jest zadbanie o nasze ciało
+-   Fundamentalne dla naszego dobrego samopoczucia jest zadbanie o nasze ciało
 -   Istotane aby nasze ciało było:
     -   wyspane
     -   zregenerowane
@@ -108,7 +132,7 @@
 -   Poszukaj kreatywnego zajęcia
     -   może to być co kolwiek co dla Ciebie jest interesujące
         -   malowanie, rysowanie, śpiewania, programowanie itp.
--   Zajmujemy nasz umysł kretywną pracą, poprawiamy nasz nastrój oraz odrywamy się od
+-   Zajmujemy nasz umysł kretywną pracą, poprawiamy nasz nastrój oraz odrywamy się od negatywnych myśli
 
 ### Uśmiech
 
@@ -146,7 +170,15 @@
 
 ### manipuluj strukturą swoich myśli
 
--   Nasze myśli składają się z obrazu, dźwięku oraz odczuć (3d)
+-   Każda myśl posiada składowe
+    -   obraz
+    -   dźwięk
+    -   odczucia
+-   Nasz umysł przetrzymuje myśli w przestrzeni trójwymiarowej
+    -   Umysł potrawi nam projektować myśli w trybie "rzutnika"
+-   Kiedy o czymś myślimy powyższe składowe wpływają na nasze emocje, co za tym idzie samopoczucie
+-   Co najważniejsze, rozumiejąc strukturę myśli możemy nauczyć się tym manipulwować
+    -   Chcemy utrzymać nasze poztywny nastrój i nastawienie
 -   Możemy natomiast manipulować obraz myśli
     -   Położenie w przestrzeni
     -   kształt
@@ -180,6 +212,14 @@
     -   Wybierz 4 zasoby które wydają się najważniejsze np. spokój, dystans, opanowanie, optymizm, pewność siebie
     -   Przypomnij sobie moment w którym odczuwałeś/aś spokój np. siedzisz na plaży a całą Twoja uwaga skupia się na rytmie fal
 
+### kontroluj swój wewnętrzny dialog
+
+-   Nasz wewnętrzny dialog często przybiera formę dialogu dobrej i złej osoby
+    -   dobra osoba jest optymistyczna i nas motywuje
+    -   zła osoba nas krytykuje i wprowadza w depresje
+    -   Jeśli się poddamy temu dialogowi i złej osobie to nas to sparaliżuje
+    -   Tutaj warto zlokalizować skad pochodzi negatywny dialog i po prostu go przesunąć, zmodyfikować. Co kolwiek co spowoduje że przestaniemy to brać na poważnie.
+
 ### zmień swoją wizje przyszłości na bardziej optymistyczną
 
 -   Lęk przed nadchodzącymi wydarzeniami generuję nam czarne scenariusze w głowie
@@ -192,6 +232,12 @@
 -   Celem jest być "tu i teraz", nie wychodzić zbytnio w przód myślami
     -   Nie rozmyślanie o przeszłości ani przyszłości
     -   Powinno to ulżyć, pomóc znaleść spokój ducha
+-   Mamy tendencje do tworzenia negatywynch scenariuszy
+    -   powoduje to lęk, tworzymy w myślach negatywne scenariusze
+    -   przeżywam w trażniejszości wymyślone negatywne scenariusze, co za tym idzie uczymy się takiego nawyku
+        -   jednocześnie nastawiamy się negatywnie i programujemy na porażke
+    -   starajmy się tworzyć pozytywnyne scenariusze
+        -   przydatne jest stworznenie paru scenariuszy, też takich które nie oczukują perfekcyjnego występu, tak abyśym nie tworzyli sobie zbyt wielkich oczekiwań, co za tym idzie rozczarowań
 
 ### dobieraj odpowiednie słowa opisując problem
 
@@ -205,6 +251,9 @@
 -   Otaczający ludzie wpływają na Twoje emocje
     -   Jeśli przebywasz w grupie którą cechuje duży negatywizm to też wpłynie na Ciebie
     -   Jeśli możesz to unikaj takich ludzi i miejsc
+-   Otaczające środowisko też na nas wpływa
+    -   Hałas negatywnie na nas wpływa
+        -   generuje stres, jest w pierwszej piątce stresorów
 -   Twój stan emocjonalny jest wyczuwany przez inne osoby
     -   Zanim zaczniesz spotkanie spróbuj wprowadzić się w dobry nastrój, to pomaga złapać lepszy kontakt
     -   To samo dotyczy innych ludzi, jeśli spotykasz ich w negatywnym stanie emocjonalnym to wpływa na Ciebie
@@ -212,6 +261,17 @@
     -   Jeśli jest negatywny, ludzie niechętnie współpracują ze sobą
     -   Jeśli jest pozytywny, chętnie ze sobą się komunikują
     -   Jeśli jesteś liderem, ciąży na Tobie odpowiedzialność budowania atmosfery grupy
+
+### Uważaj co mówisz
+
+-   Każde słowo na Ciebie wpływa
+    -   nie ma znaczenia czy mowisz głośno czy w myślach
+    -   Też słowa innych osób
+        -   Ktoś nam opowiada o jakimś problemie
+        -   Słuchamy wiadomości, negatywnych informacji
+        -   słowa wypowiadane przez osoby w autobusie itp.
+    -   Nasz umysł dla każdego słowa aby je zrozumieć wyciąga doświadczenie
+        -   z każdym doświadczeniem wiąże się jakaś emocja i uczucie
 
 ### Wybieraj pozytywne filmy, muzykę
 
@@ -240,6 +300,12 @@
     -   Nasz rozmówca nie raguje pozycja obronna bo usyłszam poztywyny feedback wymieszany z negatynymi
         -   Zamiast powiedzieć "Zupa jest źle przyprawiona"
             -   Powiedzieć "Miło mi że swój czas aby coś dla mnie ugotować, następnym razem użyj oszczędniej przyprawy, jesteś kochany/kochana że tak o mnie dbasz"
+    -   Powszechnie krytyujemy sami siebie
+        -   Najpierw w myślach obmyślamy perfekcyjny plan
+        -   Następnie zderzamy się z rzeczywistością i rozczarowaniem
+        -   To prowadzi do wewnętrznej krytyki samego siebie
+        -   Nie ma to sensu i zabiera nam radość z pracy i osiągnięć
+        -   Lepiej użyć kanapki feedbackowej dla siebie samego
 
 ### Neutralizuj negatywne myśli i słowa
 

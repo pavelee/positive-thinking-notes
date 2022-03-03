@@ -266,7 +266,6 @@
     -   dlatego lubimy takie filmy, jest to bardziej pociągające
 
 -   Hałas negatywnie na nas wpływa
-
     -   generuje stres, jest w pierwszej piątce stresorów
 
 -   Kiedy mówimy do siebie w myślach jesteśmy dla siebie znacznie ostrzejsi
