@@ -115,7 +115,7 @@
         -   szukanie rozwiązań
         -   współpraca
 -   Emocje są zaraźliwe
-    -   Możesz innych zarażać pozytywizmem, co za tym idzie wprowadzać pozytywne zmiany w soim otoczeniu
+    -   Możesz innych zarażać pozytywizmem, co za tym idzie wprowadzać pozytywne zmiany w swoim otoczeniu
 
 ## Techniki stymulowania pozytywnego nastawienia
 
