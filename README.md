@@ -36,6 +36,7 @@
 ## Źródło
 
 -   "Do wolności od negatywności, czyli jak oczyszczać swoje myśli, emocje i energię" - Agnieszka Ornatowska
+-   "Prawa Ludzkiej natury" - Robert Greene
 
 ## Negatywizm jest naturalny
 
